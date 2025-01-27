@@ -8,7 +8,7 @@ I think the gonverment intervention impacts technology companies and their users
 
 | Name     | Car | Mistake |
 | :------- | :--: | :------ |
-| Jimmy    | dfsggfhfhgf    |         |
+| Jimmy    |kuyfluyuydlutdtylykttydtydtdtdyktydkctdyfktfyk     |         |
 | Kayla    |     |         |
 | Bart     |     |         |
 | Harrison |     |         |
