@@ -12,3 +12,7 @@ I think the gonverment intervention impacts technology companies and their users
 | Kayla    | GMC sierra    | fixed the wrong problem        |
 | Bart     | toyota corolla    |  left stains on the carpit       |
 | Harrison | Forester    |  ledt the oil cap off       |
+
+
+# feburay 2, 2025
+To be more alreted and not miss the call
