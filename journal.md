@@ -16,3 +16,22 @@ I think the gonverment intervention impacts technology companies and their users
 
 # feburay 2, 2025
 To be more alreted and not miss the call
+
+# Feburay 3, 2025
+To have multiple checkpoints for the calls made all while yes advanvenced computers , "perfect" mistakes can happen and they are deadly it is so you have to double check.
+
+
+# febuary 11, 2025
+
+
+| Name     | Car | Mistake |
+| :------- | :--: | :------ |
+| circle    |green   |      7   |
+|square   |    yellow|      5   |
+| hexagon    |   brown |     6    |
+|  tringale   |purpule| |4|
+| octogon | |red| |3|
+
+# February 18, 2025
+
+For some reason I found it very interesting how easy it is to calculate a solvent's saturation. I always thought chemistry was very hard i now know it isint. Intrsing enough i did not learn this in my chem class i learned it on tick tok.   
