@@ -34,4 +34,7 @@ To have multiple checkpoints for the calls made all while yes advanvenced comput
 
 # February 18, 2025
 
-For some reason I found it very interesting how easy it is to calculate a solvent's saturation. I always thought chemistry was very hard i now know it isint. Intrsing enough i did not learn this in my chem class i learned it on tick tok.   
+For some reason I found it very interesting how easy it is to calculate a solvent's saturation. I always thought chemistry was very hard i now know it isint. Intrsing enough i did not learn this in my chem class i learned it on tick tok. 
+
+# Febuary 28, 2025
+technology has major part to play in helping to briding generatinal diffrences in communication, as well as in sloving generatinaol issues at work. Platforms that facilitate communication, collaboration, and effcieny help connect up employees from across the generation divide. The use of slang can undermine the perceived professionalism of the speaker or writer. It can lead to misunderstadings or miscommunications
