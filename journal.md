@@ -56,3 +56,19 @@ Bans on certain items or activities in schools, such as cell phones, social medi
 
 These policies can have a strong influence on student behavior, sometimes improving discipline but also potentially creating resentment or defiance. For example, if students feel a ban is unfair or unnecessary, they may try to find ways to secretly break the rules, which could lead to more problems than the original issue. If such a policy were introduced at my school, I would initially try to understand the reasoning behind it and see if it genuinely improves the learning environment. However, if the restrictions felt excessive or if they negatively affected my ability to learn or feel safe, I would consider raising my concerns through respectful dialogue with teachers or student council representatives. Constructive communication could help balance the school's goals with students' needs.
 
+
+# April 22, 2025
+Subject: Appreciation for Your Support
+
+Dear [Staff Member's Name],
+
+I hope this message finds you well. I am writing to express my sincere appreciation for the invaluable support you have provided to our team this semester. Your dedication and commitment to excellence have not gone unnoticed.
+
+Your efforts in [specific task or project] have significantly contributed to our success, and your willingness to go above and beyond has made a positive impact on both students and staff alike. The way you [mention a specific example of their contribution] truly exemplifies your professionalism and passion for your work.
+
+Thank you once again for your hard work and dedication. It is a pleasure to work alongside someone as talented and committed as you.
+
+Best regards,
+
+Gerardo Cirlos
+
