@@ -81,3 +81,11 @@ Gerardo Cirlos
 |Emma|Carrot|Birthday|$39.00| 
 
 
+
+# March 5, 2025 
+
+I do not believe that 100 unarmed people could successfully defeat a silverback gorilla. The sheer physical strength and combat capabilities of a gorilla are overwhelming. Adult male silverback gorillas can weigh between 300 to 485 pounds and possess immense muscle power, allowing them to deliver devastating blows. Even if the 100 individuals attempted to coordinate their efforts, the gorilla's agility, speed, and instinctive fighting skills would likely outmatch the collective strength of the group. Additionally, the psychological factor cannot be overlooked; the gorilla would likely react aggressively to perceived threats, making it difficult for the group to maintain any semblance of strategy or organization.
+
+Evidence and Reasoning: The viral nature of this challenge raises ethical concerns about promoting violence against animals for entertainment. While some may argue that the challenge could teach lessons about teamwork and strategy, it risks trivializing the serious issues surrounding animal welfare and conservation. Many viewers might misunderstand the implications of such a challenge, thinking it is acceptable to pit humans against animals in a fight, which could lead to harmful attitudes towards wildlife. This phenomenon highlights how trends can spread rapidly online, often prioritizing sensationalism over education. While entertainment can serve as a vehicle for learning, it is crucial to ensure that the content promotes respect for all living beings and fosters a deeper understanding of the natural world rather than encouraging violence or exploitation.
+
+
